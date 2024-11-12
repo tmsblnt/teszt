@@ -1,3 +1,3 @@
 # teszt
 
-yes - yes
+yes - yesasdhklndgsdngsdg
